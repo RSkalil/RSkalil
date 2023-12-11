@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @RSkalil
+- 👀 I’m interested in games so i thought why not being a game dev 
+- 🌱 I’m currently learning coding and programing from scratch right now 
+- 💞️ I’m looking to collaborate on anything that i can learn from 
+- 📫 How to reach me on discord rskhalil
